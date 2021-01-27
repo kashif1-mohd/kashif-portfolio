@@ -1,0 +1,1 @@
+Getting my hands dirty with a project, this project will be portfolio showcasing what i will be learning going forward.
